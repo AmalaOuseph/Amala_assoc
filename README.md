@@ -1,3 +1,0 @@
-#Amala_assoc
-
-
